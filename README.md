@@ -5,8 +5,8 @@
 - 🌱 I’m currently learning how to teach my main work computer how to recognize 5ghz wifi band from my hot spot on my new phone.
 - 💞️ I’m looking to collaborate on degoogle, and unmicroshaft the world
 
-- 📫 How to reach me e mail me any time. It might take a while to answer so please be patient. I have many questionswhich I ask in a story about what has been happening to me
-over the past 25 years online. Most of what I write about my experiences online very unbelievable, but I share tem nonetheless. If anybody who reads what I write 
+- 📫 How to reach me e mail me any time. It might take a while to answer so please be patient. I have many questions which I ask in a story format about what has been happening to me
+over the past 25 years online. Most of what I write about my experiences online very unbelievable, but I share them nonetheless. If anybody who reads what I write 
 has had the same things happen please share your conclusions about these "ghost in the machine" experiences.
 
 
